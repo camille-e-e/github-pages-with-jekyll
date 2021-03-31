@@ -1,0 +1,1 @@
+This is a story about a university.  The university understood that Climate Change is bad, and wanted its clients to do something about it.  So it invited lots of students to volunteer to come up with a way to identify carbon emissions.
